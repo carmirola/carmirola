@@ -1,5 +1,5 @@
 # 👋
 
-- 📛 Camila with one L
--  🎥 🎶 💃  ... & 🧬 **Genetics** of glycemic traits 🍭🩸
+- 📛 **Camila with one L**
+-  🎥 🎶 💃  ... & 🧬 Genetics of glycemic traits 🍭🩸
 
