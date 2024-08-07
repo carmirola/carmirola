@@ -1,5 +1,5 @@
 # 👋
 
-- **Colombian** 🇨🇴
-- 🧬 **Genetics** of glycemic traits 
-- 📫 University of **Exeter** 🇬🇧
+- 📛 Camila with one L
+-  🎥 🎶 💃  ... & 🧬 **Genetics** of glycemic traits 🍭🩸
+
